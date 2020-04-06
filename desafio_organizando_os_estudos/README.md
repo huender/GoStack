@@ -7,5 +7,3 @@
 ## 📅 Cronograma diário
 
 [Calendário de estudos](https://www.notion.so/3731e45be6654623bc9a212e4f308a46)
-
--
